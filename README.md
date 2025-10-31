@@ -1,2 +1,3 @@
 # On-par-for-a-game-
 What i could do in my sparetime, until things get complex. tobe one of the few that say i know what it could be like, i would be happy to embrace an activity that engages heart,mind and soul.
+This is a readme into the secret life of my golfing habbits while on course, rain or dry. equipted with a bag of clubs, and a caddy on standby, Here i go to take on the green, avoid obsticles and sink the ball into the hole. Here i go. Maybe i will do well, maybe i will just meet the par records, but whatevers out there it could be mine forever. This is the offical log on how i obtained and locked it down superbly-- Go, ben, go. 
